@@ -1,1 +1,1 @@
-# rs-school-cv
+https://Rostyslaww.github.io/rs-school-cv/cv
